@@ -1,5 +1,6 @@
 # Richycam
 
-https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExbHlsOWVzc2NhcTY2YWY1czRlMHBiejVkanNqd3V4MWYwaHMxczF4ZCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/3oriNLx3dUqFgVi86I/giphy.webp
+![image](https://github.com/user-attachments/assets/09a3ccbb-e39c-4b86-b651-16b6f65ba8a8)
+
 
      your fav skid 
